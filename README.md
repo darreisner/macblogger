@@ -1,1 +1,9 @@
-# macblogger
+<b>Internet and Exams: the Future of Education</b>
+
+Let us fantasize a little bit and imagine the alternative educational system of the future that excludes the need of memorization of information or learning to pass the exam. We are accustomed to the fact that on the exam we have only our own mind, which we fill with information in order to pass the exam  successfully. A piece of paper and a pencil remained in the past century, since now we have different gadgets to connect to the Internet, which stimulate us to remember less information, since the approach to the web is always available anywhere and at any time.
+
+Imagine that you have a question like "<a href="https://macblogger.org/how-to/clean-mac-space-remove-files-waste-disk-space/">How to clean up Mac space?</a>" and the tablet in your hands. You can do anything: search for the answers in the web or text your friends, as you wish. That sounds pretty easy, and you are assured that any exam could be passed in this kind of system. The tutors will encourage you not to memorize anything since you have Google search; you do not have to have a good hand-writing because you need to type, you do not have to learn the spelling or grammar because the machine will correct all of your mistakes. 
+
+The old system of education is aimed at storing and analyzing information. The idea described above is a reminiscent of some science fiction movie plot, where people just pass the data through the brain and do not perform any reaction to it. Surely, the gadgets are beneficial, they can simplify the process of assimilation and storage of information and give the approach to any necessary data anytime, but they also are up to simplify the process of our thinking. One should keep in mind that the society that moves on the way of simplification and maximum comfort must know where to stop. Read more info here: <a href="https://macblogger.org/">https://macblogger.org/</a>
+
+	
